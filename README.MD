@@ -1,1 +1,1 @@
-#Good Luck with second image :)
+# Good Luck with second image :) This is easy trust me
